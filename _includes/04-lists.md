@@ -1,19 +1,19 @@
 
-1. Bộ phận dùng
+**1. **Bộ phận dùng**
     * Lá: cải thiện hệ tuần hoàn
     * Hạt: được dùng trong các vấn đề về tiết niệu và đường thở
-2. Lịch sử
+**2. Lịch sử**
     
     Bạch quả được cho là loại cây lâu đời nhất trên thế giới. Xuất hiện cách đây 190 triệu năm. Dù đã được sử dụng như một loại thuốc ở TQ nhưng những nghiên cứu về loài cây này chỉ mới được thực hiện những năm gần đây. Phần lá (và chiết xuất của chúng) được dùng trong điều trị các vấn đề tuần hoàn kém và giúp duy trì lưu cung cấp máu đến hệ thần kinh trung ương.
     
-3. Thành phần trong lá Bạch quả
+**3. Thành phần trong lá Bạch quả**
     - Flavonoids Các flavonglycosides ginkgo (glycosides ginkgo flavone) của *Ginkgo biloba*, bao gồm quercetin, kaempferol và isorhamnetin là các chất hóa thực vật thường được gọi là chỉ số đánh giá chất lượng và hiệu quả.
     - Ginkgolides
     - Bilobalides
     
     Liều cao nhất được khuyến cáo là 240mg chiết xuất cao bạch quả ⇒ 57.6mg Flavonglycosides (24%)
     
-4. Tác dụng
+**4. Tác dụng**
     
     Ginkgo là loại dược liệu bán chạy nhất ở Pháp và Đức, chúng được tiêu thụ mỗi ngày bởi hàng triệu người từ độ tuổi trung niên trở đi. Dùng để duy trì và cải thiện tuần hoàn não cũng như trí nhớ, ngoài ra còn làm giảm nguy cơ bị đột quỵ. Đây cũng là một loại thuốc được dùng sau khi bị đột quỵ.
     
