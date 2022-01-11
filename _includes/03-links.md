@@ -1,1 +1,1 @@
-[anhnmk portfolio](https://github.com/anhnmk).
+[website GHNZ](https://www.goodhealth.co.nz/products/detail/ginkgo-max-8000).
